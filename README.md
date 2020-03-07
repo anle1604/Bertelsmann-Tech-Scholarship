@@ -1,0 +1,1 @@
+# Bertelsmann-Tech-Scholarship
